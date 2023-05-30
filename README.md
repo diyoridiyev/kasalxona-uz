@@ -1,0 +1,2 @@
+# kasalxona-uz
+kasalxona-uz
